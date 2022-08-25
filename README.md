@@ -1,6 +1,6 @@
 # first-repo
 
-norhtwest missouri state university
+jayachandrasai eladandi
 
 life is beautiful
 
