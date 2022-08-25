@@ -2,6 +2,6 @@
 
 jayachandrasai eladandi
 
-life is beautiful
+Hardwork is the key to success
 
-wrangler is my favorite
+
