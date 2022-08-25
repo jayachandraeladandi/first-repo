@@ -2,6 +2,6 @@
 
 norhtwest missouri state university
 
-jayachandra sai is a slow learner
+life is beautiful
 
 wrangler is my favorite
