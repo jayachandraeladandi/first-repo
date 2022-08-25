@@ -1,3 +1,7 @@
 # first-repo
+
 norhtwest missouri state university
-jayachandra sai
+
+jayachandra sai is a slow learner
+
+wrangler is my favorite
